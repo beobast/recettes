@@ -1,19 +1,20 @@
 # Chou fleur au curry, rôti au four
 
 Une façon simple de redonner un peu de relief au chou-fleur, sans gratin ni crème, et qui s’adapte facilement à ce que l’on a sous la main.
+
 [Source](https://www.papillesetpupilles.fr/2019/03/chou-fleur-au-curry-roti-au-four.html/)
 
-*Légumes, Sans gluten, Sans lait, Sans oeufs, Végétarien*
+_Légumes, Sans gluten, Sans lait, Sans oeufs, Végétarien_
 
-** 4 personnes **
+**4 personnes**
 
 ---
 
-- *1* choux fleur
-- *4 cuillères à soupe* d'huile d'olive
-- *1 cuillère à soupe* rase de curry en poudre
-- *2 pincées* de sel
-- *1 bonne pincée* de poivre
+- _1_ choux fleur
+- _4 cuillères à soupe_ d'huile d'olive
+- _1 cuillère à soupe_ rase de curry en poudre
+- _2 pincées_ de sel
+- _1 bonne pincée_ de poivre
 
 ---
 
