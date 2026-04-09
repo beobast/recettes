@@ -2,36 +2,34 @@
 
 Le fameux pâté du grand père d'Aude.
 
-_fête, pâte brisée_
+*fête, pâte brisée*
 
-**6 Servings**
+**6 personnes**
 
 ---
-
-- _200 g_ porc
-- _100 g_ veau
-- _1_ pâte brisée
-- _3_ gros oeufs
+- *200 g* porc
+- *100 g* veau
+- *1* pâte brisée
+- *3* gros oeufs
 - oignon
 - persil
-
 ---
 
-Faire une pâte brisée (mettre au frais 2 heures).
+1. Faire une pâte brisée (mettre au frais 2 heures).
 
-Faire un hachi (2/3 porc et 1/3 veau). Total 300 grammes.
+2. Faire un hachi (2/3 porc et 1/3 veau). Total 300 grammes.
 Possibilité d'ajouter un peu d'oignon et de persil; les deux hachés très fin.
 
-Faire dursir 3 gros oeufs ou 4 moyens; les couper en deux.
+3. Faire dursir 3 gros oeufs ou 4 moyens; les couper en deux.
 
-Etaler la pâte brisée.
+4. Etaler la pâte brisée.
 
-Etaler le hachi sur la moitié de la pâte.
+5. Etaler le hachi sur la moitié de la pâte.
 
-Placer les oeufs par dessus (le jaune vers le bas).
+6. Placer les oeufs par dessus (le jaune vers le bas).
 
-Recouvrir avec l'autre moitié de la pâte.
+7. Recouvrir avec l'autre moitié de la pâte.
 
-Etaler un jaune d'oeuf au #pinceau sur le dessus du pâté pour le faire dorer.
+8. Etaler un jaune d'oeuf au pinceau sur le dessus du pâté pour le faire dorer.
 
-Mettre au four 1 heure environ; thermostat 5 (180°C).
+9. Mettre au four 1 heure environ; thermostat 5 (180°C).
